@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Onwellerwt
-- 👀 I’m interested in Aquaponics.
+- 👀 I’m interested in Aquaponics, coding, hiking and swimmming.
 - 🌱 I’m currently learning Java on my journey to a Associates in Computer Science.
 - 💞️ I’m looking to collaborate on something in the future...way in the future.
 - 📫 How to reach me: Email Onwellerwt@gmail.com
